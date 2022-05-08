@@ -1,1 +1,0 @@
-# ryujiuozumi.github.io
